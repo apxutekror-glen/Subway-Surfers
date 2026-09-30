@@ -216,4 +216,4 @@ Subway Surfers is the complete free version with all features and updates includ
 Don't miss out on the fun – **download Subway Surfers for Windows today and join the adventure!**
 
 ---
-**Last updated:** 2026-09-30 18:42:22 UTC
+**Last updated:** 2026-09-30 22:43:29 UTC
